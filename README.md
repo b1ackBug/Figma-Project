@@ -1,1 +1,1 @@
-Link - https://b1ackbug.github.io/Figma-Project/
+Link - https://faridgarayev.github.io/Figma-Project/
